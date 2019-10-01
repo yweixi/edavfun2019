@@ -11,3 +11,5 @@ Here's a fun inspiration for EDAV - https://www.instagram.com/the.wine.nerd/?hl=
 
 Test - K.G.
 
+A fun resource: https://truthbeautyequations.com/
+
